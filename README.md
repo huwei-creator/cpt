@@ -1,4 +1,3 @@
-Email: cs@hf128.com| Web: www.hf128.com|
 隐私条款
 保护客户和网站访客的隐私，并确保其个人和财务信息的安全，是我们的主要
 责任之一。以下隐私声明解释了 Huajin Fortune Holdings（以“HF128”为商号
